@@ -1,0 +1,2 @@
+GreenWave Energy provides sustainable and eco-friendly energy solutions for homes and businesses. We offer solar panel systems, energy storage units, and innovative green technology to help reduce your carbon footprint. With a commitment to a cleaner future, our solutions are designed to save energy and protect the environment. Browse our website to see how GreenWave Energy can power your life sustainably.
+
